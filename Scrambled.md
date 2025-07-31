@@ -5,6 +5,7 @@
   - CA SA IA ¦ AMBC
   - Josef, chase, jon
   - rit 2025
+  - [vimeo](https://vimeo.com/807702588)
 
 1.2 casbia
   - CA SB IA ¦ AMBC
